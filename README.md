@@ -1,4 +1,4 @@
-# 👋 ¡Hola! Soy Lidia
+# 👋 ¡Hola! Mi nombre es Lidia
 
 ## Sobre mí
 
